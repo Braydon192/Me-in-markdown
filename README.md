@@ -7,6 +7,7 @@
 [Link Text](https://open.spotify.com/playlist/26Yi4iz9jgltiYEcH9gxTF?si=6xNDaYoWTMe-eYxxbMEaWg).
 
 #Mood Board
+<img width="1920" height="1080" alt="Untitled design (1)" src="https://github.com/user-attachments/assets/ef28a1b0-4b69-496e-b76d-fb05aadf5869" />
 
 
 
